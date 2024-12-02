@@ -5,7 +5,7 @@
 
 <h1 align="center">
   
-![image](https://github.com/user-attachments/assets/4d86d354-3f5d-499e-9a5f-540f84f2e311)
+![image](https://github.com/user-attachments/assets/71ac4705-4c2e-4320-aa8c-0a3875b75f86)
 
 ![image](https://github.com/Gu-Mang/Gu-Mang/assets/156284159/eff59f30-2318-403c-a89d-3fe313c7d7a9) 
 
