@@ -1,13 +1,13 @@
 # <h3 align="center"> ┏━━━━━━━━━━━━━━━━━༻❁༺━━━━━━━━━━━━━━━━━┓ 
 <h3 align="center">  ☼ ☽ ⋆｡°✧  𝓗𝓮𝔂 𝓐𝓷𝓷𝓮, 𝓜𝓪𝔂𝓫𝓮 𝔂𝓸𝓾'𝓻𝓮 𝓫𝓮𝓽𝓽𝓮𝓻 𝓸𝓯𝓯 𝔀𝓲𝓽𝓱𝓸𝓾𝓽 𝓶𝓮  ✧⋆°｡ ☾ ☼
 
-![image](https://github.com/Gu-Mang/Gu-Mang/assets/156284159/9707369b-d501-4f4b-8e8a-c9e8b3bccff1)
+![image](https://github.com/user-attachments/assets/d6763038-f967-432d-bee5-f970591f85cf)
 
 <h1 align="center">
   
 ![image](https://github.com/user-attachments/assets/b08fbda3-8845-4fcc-90b9-beaee7429338)
 
-![image](https://github.com/Gu-Mang/Gu-Mang/assets/156284159/eff59f30-2318-403c-a89d-3fe313c7d7a9) 
+![image](https://github.com/user-attachments/assets/4477be96-56ea-45b5-999c-e2153e3d04e0)
 
 <h1 align="center"> Little about me 
   
