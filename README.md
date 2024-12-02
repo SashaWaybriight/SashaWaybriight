@@ -15,5 +15,5 @@
 <h3 align="center"> Heres some of my obsessions: SVSSS, YUWU, Amphibia, Dragons and Snakes
 
 
-### ᵃᶰᶤᵐᵃᵗᶤᵒᶰ ᵇʸ @ᵈʳᵃᵍᵒᶰᵈᵃʷᵈˡᵉˢ ᵒᶰ ᵗᵘᵐᵇˡʳ!
+### ᴬʳᵗ ᵇʸ @ˢʰⁱᵐᵐʸᴼʰ_ ᵒⁿ ᵗʷⁱᵗᵗᵉʳ
 
